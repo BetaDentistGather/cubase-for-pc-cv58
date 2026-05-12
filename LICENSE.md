@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows automatic Script: plugin-management & pitch-shifting offers the most advanced Cubase for PC | Cubase for Windows script, with plugin-management
 
 
 
